@@ -1,2 +1,2 @@
-# 👋 Hi! I'm Gareth!
+# 👋 Hi, I'm Gareth!
 
